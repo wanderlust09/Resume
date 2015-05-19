@@ -1,2 +1,2 @@
 # Resume
-## Thank you for staying and reading. ^_^
+## Thank you for reading. ^_^
